@@ -1,6 +1,6 @@
 # Aestheticgal.github.io
- ## Hello Everyone!
- ### Welcome to my homepage!
+## Hello Everyone!
+### Welcome to my homepage!
  ---
 ### On my website you can find many things including:
 1. My bio! Getting to know all about me.
