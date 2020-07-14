@@ -10,6 +10,7 @@
 
 ![](https://i.pinimg.com/564x/83/82/cf/8382cf2778509585dbce1d7eb506310b.jpg)
 
-Links!
-Check out my bio - Aestheticgal.github.io/bio.io
+### Links!
+Check out my [Bio](bio) 
+
 
