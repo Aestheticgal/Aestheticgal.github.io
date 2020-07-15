@@ -1,7 +1,7 @@
  # Hello everyone!
  ## My name is Alice Horton and I want to share a couple of things about myself.
  ---
- ### I am a 28 year old artist who was borni in San Francisco California. I grew up in Los Angeles where I did my elementry and high school schooling. Then moved to the east coast which I now live at in  Manhattan New York with my Dobermann named Max where I attended Columbia University. I now work for a cosmetic company as a 9 to 5 but on my spare time Im building my platform on youtube.
+ ### I am a 28 year old artist who was born in San Francisco California. I grew up in Los Angeles where I did my elementry and high school schooling. Then moved to the east coast which I now live at in  Manhattan New York with my Dobermann named Max where I attended Columbia University. I now work for a cosmetic company as a 9 to 5 but on my spare time Im building my platform on youtube.
    
    ![](https://pbs.twimg.com/profile_images/1872488399/Doberman__400x400.jpg "Max") 
    
