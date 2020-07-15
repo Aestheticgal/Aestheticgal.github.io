@@ -4,11 +4,13 @@
  ---
 ### On my website you can find many things including:
 1. My bio! Getting to know all about me.
-1. A couple of links including where I get my inspiration from 
-1. Very interesting facts on internet addictions.
+1. A couple of links including where I get my inspiration from.
+1. My love for music.
 1. Beautiful aesthetics.
 
-![](https://i.pinimg.com/564x/83/82/cf/8382cf2778509585dbce1d7eb506310b.jpg)
+![](https://i.pinimg.com/originals/f4/d2/4c/f4d24cf63fde248a0e26dab51785384c.png)
+![](https://i.pinimg.com/originals/8b/c9/1e/8bc91e568acaaecfdf39e402c7513ee1.png)
+![](
 
 ### Links!
 Check out my [Bio](bio) 
