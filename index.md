@@ -13,5 +13,5 @@
 ![](https://i.pinimg.com/originals/3d/82/0f/3d820fc87701b52bde72c9c2e2adcb8d.jpg)
 
 ### Links!
-+Check out my [Bio](bio) 
-+Check out my love for [music](topic)
++ Check out my [Bio](bio) 
++ Check out my love for [music](topic)
