@@ -32,4 +32,4 @@ Country is a genre I never listened to until recently. Country is such an emotio
 ### Carrie Underwood
 Carrie Underwood was the first country artist I heard. Not only is she really an amazing country singer she is also one of the most amazing country singers that are out there.
 
-Back to my [Home page](index) 
+Back to my [Home page](index.md) 
