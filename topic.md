@@ -1,10 +1,13 @@
 # Music!
 ## Music is a big part of my life!
-I love music, specifically
+### I LOVE MUSIC
+Music to me is a way everyone can connect. You can really see how alike people are by the type of music they listen to. From the beat of the music to the thought out lyrics there are so many amazing songs and genres. 
+
 ### My favorite music genres are:
  + Theatre
  + Pop
  + Country
+ 
 ## Theater
 Theater is by far my favorite genre of music of all time. It just takes you to that musical that its from and makes you feel as if you are in the play yourself.
 
