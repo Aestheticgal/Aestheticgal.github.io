@@ -5,7 +5,7 @@
    
    ![](https://pbs.twimg.com/profile_images/1872488399/Doberman__400x400.jpg "Max") 
    
-### I am very into minimalism and aesthetic art. I paint whenever I have the chance and I usually go for a modern bohemian vibe.  Below are links to some of my favorite minimalist youtubers that inspire me.
+### I am very into minimalism and aesthetic art. I paint whenever I have the chance and I usually go for a modern bohemian vibe. I am also very into music and cooking meals whenever I can. I love to try new and different thing!  Below are links to some of my favorite minimalist youtubers that inspire me.
    <https://www.youtube.com/channel/UCNtdcQMN2szPPtp5EWluEqQ>
    
    <https://www.youtube.com/channel/UC4Unj6XzNqvCUvmoFhafALg>
