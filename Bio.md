@@ -10,10 +10,10 @@
    
    <https://www.youtube.com/channel/UC4Unj6XzNqvCUvmoFhafALg>
    
-### I have many hobbies with my spare time.
-   1. biking
-   1. painting 
-   1. cooking 
+### I have many hobbies with my spare time. My main ones are:
+   + biking
+   + painting 
+   + cooking 
    
 ### I am vegan so I cook vegan meals. I am currently taking cooking lessons to perfect my cooking techniques. I get most of my vegan meal ideas and inspo from a youtuber and blogger Nadia. Link below.
   
