@@ -12,5 +12,6 @@
 
 ### Links!
 Check out my [Bio](bio) 
+Check out my love for [music](topic)
 
 
