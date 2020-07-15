@@ -7,6 +7,7 @@ I love music, specifically
  + Country
 ## Theater
 Theater is by far my favorite genre of music of all time. It just takes you to that musical that its from and makes you feel as if you are in the play yourself.
+![](https://c-sf.smule.com/rs-s82/arr/f7/91/a29400dd-68c7-4b02-a71c-cb8b08c3e170.jpg)
 ###Hamilton
 Hamilton is a musical.
 ## Pop
