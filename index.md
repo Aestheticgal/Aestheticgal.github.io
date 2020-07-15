@@ -10,10 +10,8 @@
 
 ![](https://i.pinimg.com/originals/f4/d2/4c/f4d24cf63fde248a0e26dab51785384c.png)
 ![](https://i.pinimg.com/originals/8b/c9/1e/8bc91e568acaaecfdf39e402c7513ee1.png)
-![](
+![](https://i1.pngguru.com/preview/517/828/947/pink-aesthetic-s-pink-crt-tv-art.jpg)
 
 ### Links!
-Check out my [Bio](bio) 
-Check out my love for [music](topic)
-
-
++Check out my [Bio](bio) 
++Check out my love for [music](topic)
