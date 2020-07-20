@@ -38,5 +38,5 @@ Must be significantly impaired in school, work, social life, and other important
 + Cognitive behavior therapy is a treatment that can be utilized.
 + Ensure that the facility you are going to is legal and reliable.
 
-[Homepage](index.mx)
+[Homepage](index.md)
 
