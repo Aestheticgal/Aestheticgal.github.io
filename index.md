@@ -15,3 +15,4 @@
 ### Links!
 + Check out my [Bio](Bio.md) 
 + Check out my love for [music](topic.md)
++ Check out [gamingaddiction](addiction.md)
